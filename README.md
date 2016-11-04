@@ -1,5 +1,5 @@
 Teleseed™
- [Admin](https://telegram.me/masaood658) 
+   [Admin](https://telegram.me/masaood658) 
 
   Mz597
 
